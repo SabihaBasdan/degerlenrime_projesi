@@ -1,0 +1,1 @@
+# degerlenrime_projesi
